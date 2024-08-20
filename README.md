@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ebtsam.s.mohamed@gmail.com**
 
-- 📄 My CV [https://docs.google.com/document/d/1k0lxj0GwPXvaZOCy0_UAoKVsPcX38MIxS34qXxBx-So/edit?usp=sharing](https://docs.google.com/document/d/1k0lxj0GwPXvaZOCy0_UAoKVsPcX38MIxS34qXxBx-So/edit?usp=sharing)
+- 📄 My CV [CV Drive](https://docs.google.com/document/d/1k0lxj0GwPXvaZOCy0_UAoKVsPcX38MIxS34qXxBx-So/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
